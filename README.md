@@ -1,0 +1,1 @@
+# Internship-task-projrct-AI-techsonIx-solutions
